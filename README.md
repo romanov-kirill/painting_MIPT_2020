@@ -1,0 +1,1 @@
+# painting_MIPT_2020
